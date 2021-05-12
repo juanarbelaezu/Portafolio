@@ -30,4 +30,4 @@ Bugs Conocidos...
 
 Trailer: https://youtu.be/MtXTwGrmPA0
 
-Proyecto en: https://drive.google.com/drive/folders/1xTtMx3p7FszGtcBuke4Vb5xrSiiy5AeD?usp=sharing
+Proyecto en: https://drive.google.com/drive/folders/1Ta8xLqjrQjr6cM-TVFZfoG2_qNQc_jgP?usp=sharing
